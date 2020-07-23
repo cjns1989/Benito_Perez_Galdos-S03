@@ -1,6 +1,6 @@
 # About Benito Pérez Galdós
 
-Benito Pérez Galdós was the leading literary figure of 19th century Spain. One of his major achievements was the *Episodios nacionales* (National Episodes) a monumental collection of forty-six novels written between 1872 and 1912 that retrace the history of Spain from the war of independence against the armies of Napoleon (1807-1814) to the Spanish-American war (1898) when Spain eventually lost the last remainders of its colonial empire more specifically in the Philippines and the Caribean. 
+Benito Pérez Galdós was the leading literary figure of 19th century Spain. One of his major achievements was the *Episodios nacionales* (National Episodes) a monumental collection of forty-six novels written between 1872 and 1912 that retrace the history of Spain from the war of independence against the armies of Napoleon (1807-1814) to the Spanish-American war (1898) when Spain eventually lost the last remainders of its colonial empire more specifically in the Philippines and the Caribbean. 
 
 This is is the third series of Benito Pérez Galdós' celebrated  *Episodios nacionales*. It comprises the following ten novels:
 
